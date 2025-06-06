@@ -1,0 +1,1 @@
+# wot-project-digitalTwinScompenso-Presentation-Catalano-
